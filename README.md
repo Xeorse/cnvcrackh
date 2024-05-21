@@ -2,4 +2,4 @@
 
 [![Download](https://i.postimg.cc/R0BKNcB6/Capcuts.png)](tinyurl.com/4kd4tdc3)
 
-![AVATAR](https://static-cse.canva.com/blob/760895/1_XP2KwBKj7H5BJvWb_cvBIg.png)
+![AVATAR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Canva-vs-Figma-logos.jpg)
